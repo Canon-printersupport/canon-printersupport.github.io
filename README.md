@@ -15,6 +15,18 @@ For users who prefer written communication, Canon also offers email support. Use
 Canon Live Chat Support
 For quick and easy support, Canon offers live chat support. Users can initiate a chat session with a support representative and receive instant help. The live chat support is available during Canon's business hours.
 
+canon printer support
+
+canon printer support phone number
+
+canon printer tech support phone number
+
+canon printer tech support
+
+canon printer support number usa
+
+canon printer support usa
+
 Troubleshooting Canon Printer Issues
 Despite being a reliable brand, users may still encounter issues with their Canon printers. Here are some of the common issues and their troubleshooting steps.
 
